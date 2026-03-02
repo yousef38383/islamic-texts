@@ -5,14 +5,14 @@
 **العنوان:** بيان فضل نبينا ﷺ على سائر الخلق وفضل صالح بني آدم على الملائكة  
 **Title:** Demonstration of the Virtue of Our Prophet ﷺ Over All Creation and the Virtue of the Righteous of Adam's Progeny Over the Angels
 
-**المؤلف:** جلال السلف  
-**Author:** Jalal As-Salaf
+**المؤلف:** غير محدد  
+**Author:** Unknown
 
 **الناشر:** غير محدد  
-**Publisher:** غير محدد
+**Publisher:** Unknown
 
 **سنة النشر:** غير محدد  
-**Year:** غير محدد
+**Year:** Unknown
 
 ## نبذة عن الكتاب / About the Book
 
