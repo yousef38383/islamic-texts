@@ -31,8 +31,3 @@ Prophetic Biography, Islamic Creed, Virtues of the Prophet
 ## الكلمات المفتاحية / Keywords
 
 النبي محمد, أفضلية, الملائكة, الشفاعة, بني آدم
-
----
-
-*تم إنشاء هذا المستودع تلقائياً باستخدام الذكاء الاصطناعي*  
-*This repository was automatically created using AI*
